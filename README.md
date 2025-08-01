@@ -16,6 +16,8 @@ I specialize in data analysis, visualization, and reporting, with a focus on sol
 
 ⚡ **Fun fact:** I enjoy turning messy datasets into clean, compelling stories!
 
+<a href="https://limewire.com/d/kwII1#DJGtw40tZL" download target="_blank">**View Resume**</a>
+
 <img src="https://user-images.githubusercontent.com/74038190/221352987-68da234d-4d62-4e9d-9d7f-098dc657c2dc.gif" alt="bar animation">
 
 
